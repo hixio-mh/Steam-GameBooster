@@ -33,9 +33,6 @@ Q: Who is your love?
 A: @😱Accounts4Dayz😱
 
 
-
-
-
 MUCH LOVE
 
 DONT LEACH MFCKERs
