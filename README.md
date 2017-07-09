@@ -11,11 +11,11 @@
 
 
 ## Q: Can you design me a Logo/Intro/Whatever?
-- A: For money i do everythin. ;)
+- A: For money i do everything. ;)
 
 
 ## Q: Do you have a Discord?
-- A: Not yet. I will add one as soon as posible?
+- A: Not yet. I will add one as soon as possible.
 
 
 ## Q: What do you do for living?
