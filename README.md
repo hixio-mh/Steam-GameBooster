@@ -19,7 +19,7 @@
 
 
 ## Q: What do you do for living?
-- A: Begging for Bitcoin. (1LBhEGocYajdRdyWseLR1AgGTv2cBNVAJz) ;)
+- A: Begging for Bitcoin. (1LBhEGocYajdRdyWseLR1AgGTv2cBNVAJz) :blush: 
 
 
 ## Q: Who is your love?
