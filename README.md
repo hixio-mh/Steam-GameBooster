@@ -2,7 +2,6 @@
 
 
 # FAQ:
-
 ## Q: Why is it better?
 
 - A: Fixed issues, more efficient, added advanced features.
