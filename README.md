@@ -11,7 +11,7 @@
 
 
 ## Q: Can you design me a Logo/Intro/Whatever?
-- A: For money i do everything. ;)
+- A: For money I do everything. :wink:
 
 
 ## Q: Do you have a Discord?
