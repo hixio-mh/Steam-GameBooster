@@ -3,7 +3,7 @@
 
 FAQ:
 
-Q: What is better?
+Q: Why is it better?
 
 A: Fixed issues, more efficient, added advanced features.
 
