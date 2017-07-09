@@ -1,7 +1,7 @@
 # Steam-GameBooster
 
 
-FAQ:
+# FAQ:
 
 Q: Why is it better?
 
@@ -33,6 +33,8 @@ Q: Who is your love?
 A: @😱Accounts4Dayz😱
 
 
-MUCH LOVE
 
-DONT LEACH MFCKERs
+# MUCH LOVE
+
+
+# DONT LEACH MFCKERs
