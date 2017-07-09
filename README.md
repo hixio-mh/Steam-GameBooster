@@ -14,7 +14,7 @@
 - A: For money i do everything. ;)
 
 
-## Q: Do you have a Discord?
+## Q: Do you have a [Discord[?
 - A: Not yet. I will add one as soon as possible.
 
 
@@ -28,5 +28,4 @@
 
 
 # MUCH LOVE
-
 # DONT LEACH MFCKERs
